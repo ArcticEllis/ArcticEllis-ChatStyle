@@ -10,8 +10,7 @@ Has all the features that fivem has
 
 ![RedM Chat](https://i.imgur.com/o6IFMTP.png)
 
-[Imgur](https://i.imgur.com/o6IFMTP.png)
+![RedM Chat](https://i.imgur.com/DCT5lv5.png)
 
-https://i.imgur.com/DCT5lv5.png
+![RedM Chat](https://i.imgur.com/o6IFMTP.png)
 
-https://i.imgur.com/o6IFMTP.png
