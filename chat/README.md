@@ -8,7 +8,7 @@ I do not own this resource this is simply an style edit.
 
 Has all the features that fivem has
 
-![RedM Chat](https://i.imgur.com/o6IFMTP.png)
+![RedM Chat](https://i.imgur.com/xQ08QEV.png)
 
 ![RedM Chat](https://i.imgur.com/DCT5lv5.png)
 
